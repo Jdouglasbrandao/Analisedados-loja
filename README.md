@@ -1,0 +1,1 @@
+# Analisedados-loja
